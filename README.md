@@ -1,4 +1,4 @@
-# Titan-s-Revolt
+# Titan's Revolt 
 
 ![alt text](https://raw.githubusercontent.com/ctmbg/Titan-s-Revolt/main/TkaVHdG.jpg)
 
